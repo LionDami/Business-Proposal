@@ -11,7 +11,13 @@ EkunDines is proud to announce an exciting culinary venture coming to Dundalk, C
 ## Market Research & Analysis
 **Population Overview**
 
-![image](https://github.com/LionDami/Business-Proposal/assets/145494245/9743bbe0-efcd-4da4-be26-c0ff0d45b03d)
+![image](https://github.com/LionDami/Business-Proposal/assets/145494245/346d4e3f-20e0-4ab8-ae22-958b340efd4f)
+
+- As seen on the demographics Dundalk has a population of 43,112 in 2022 and since 1991 its had a jump of 13,051 and according to the trajectory, it will keep going up staying consistent with the census reviews each year.
+
+![image](https://github.com/LionDami/Business-Proposal/assets/145494245/cdd00b4d-18d4-4844-8bcc-6c038e3a8ac0)
+
+- According to the Country of birth chart, one of the main reasons Dundalk population shot up since 1991 by 13,051, alongside child birth was due to immigration of foreigners. In conclusion these graphs represent, that there is a market and a growing need for the multicultural cuisines that needs to be tapped into and will flourish.
 
 
 
