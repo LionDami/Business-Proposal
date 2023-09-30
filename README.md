@@ -9,6 +9,6 @@ In this executive summary, I will be giving a comprehensive synopsis on my busin
 EkunDines is proud to announce an exciting culinary venture coming to Dundalk, County Louth, Ireland. Dundalk present day and in the coming future is becoming more and more culturally diverse and because of this matter, we have come to the conclusion there is a niche problem that Dundalk is not fulfilling. Its crucial for local businesses to reflect these demographic changes and EkunDines is just the solution that aligns with the evolving tastes and preferences of the community. Inclusivity represents a message that the town invites and welcomes peoples from all backgrounds with a sense of unity amongst residents.
 
 ## Market Research & Analysis
-![image](https://github.com/LionDami/Business-Proposal/assets/145494245/f725614b-db3f-4390-ad28-9295b262261a)
+![image]([https://github.com/LionDami/Business-Proposal/assets/145494245/f725614b-db3f-4390-ad28-9295b262261a](https://www.citypopulation.de/en/ireland/towns/louth/10013__dundalk/)https://www.citypopulation.de/en/ireland/towns/louth/10013__dundalk/)
 
 
